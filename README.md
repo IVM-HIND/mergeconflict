@@ -2,7 +2,7 @@
 
 Teri Moïse - les poèmes de Michelle
 
-Michelle veut croire
+Celine voudrait croire
 En l'innocence que sa vie ne permet pas
 Si jeune, trop mûre
 Elle connaît déjà la faim les nuits dures
